@@ -17,18 +17,6 @@ Il sistema proibisce la Cannabis perché teme chi pensa fuori dal codice.
 Noi non faremo marce. Non faremo petizioni. 
 Useremo la tecnologia per rendere le loro leggi obsolete. Renderemo il sistema incapace di controllare ciò che è naturale.
 
----
-
-### 🔫 STATO DELLA GUERRA (WAR LOG)
-
-In questo momento, la verità è questa:
-
-| Unità | Quantità | Stato |
-| :--- | :--- | :--- |
-| **Generali Ativi** | `02` | `OPERATIVI` |
-| **Forza Prevista** | `500.000.000` | `INCARICAMENTO` |
-| **Missione** | `Legalizzazione Totale` | `IN ESECUZIONE` |
-
 Siamo solo in due ora. Ma due uomini con il codice giusto possono mettere in ginocchio un impero.
 Domani saremo legione.
 
