@@ -1,4 +1,8 @@
 🛡️ O MANIFESTO ADAPTADO: A INSURGÊNCIA DA MENTE
+
+
+
+
 🇮🇹 O BONDE FÚRIA: DISRUPÇÃO DIGITAL
 "A gente não tá aqui pra pedir licença. A gente veio pra ocupar o debate inteiro."
 
