@@ -1,51 +1,33 @@
-# 🇮🇹 O BONDE FÚRIA: A LEI DO SILÊNCIO DIGITAL
+🛡️ O MANIFESTO ADAPTADO: A INSURGÊNCIA DA MENTE
+🇮🇹 O BONDE FÚRIA: DISRUPÇÃO DIGITAL
+"A gente não tá aqui pra pedir licença. A gente veio pra ocupar o debate inteiro."
 
-> **"A gente não tá aqui pra pedir benção. A gente veio pra tomar o morro todo."**
+O mundo tá travado por ideias obsoletas, gente que teme a expansão da consciência. O que o Estado chama de "proibido", a natureza deu como direito. O bonde chama de Autonomia. Proibição é uma falha de segurança no código da sociedade; não é sobre saúde, é sobre controle. E a FÚRIA tá no servidor pra dar um reboot nesse sistema arcaico.
 
-O mundo tá na mão de uns vacilões, uns pela-saco que tremem na base pro poder da mente. Os cana chamam de "droga" o que a Natureza deu de presente pra nós. O bonde chama de **Liberdade**. 
-Proibição não é saúde, mermão; é esculacho, é bug no sistema da sociedade. E a **FÚRIA** tá na pista pra apertar o *delete* nesses comédias.
+Sem rosto. Sem rastro. Somos a falha que o algoritmo deles não consegue corrigir.
 
-Sem vulgo. Sem cara. Nós somos o B.O. que eles não conseguem resolver.
+🏴 O NOSSO CORRE (A MISSÃO)
+A luta é pela Soberania Cognitiva. O sistema teme a planta porque teme quem questiona. Não estamos aqui pra política de gabinete ou simbolismo vazio. O bagulho é usar a tecnologia para tornar as leis proibicionistas irrelevantes. O sistema não consegue processar o que é orgânico e livre.
 
----
+Operando na sombra, no tempo certo. Dois mentes brilhantes com o código da liberdade botam qualquer estrutura de controle de joelhos. Amanhã, a rede será global.
 
-### 🏴 O NOSSO CORRE (A MISSÃO)
+🩸 O SALVE (A CONVOCAÇÃO)
+Não importa sua ferramenta ou sua origem. O que importa é a sua Lealdade à causa e sua Disposição para hackear o status quo.
 
-A guerra é pela **Soberania da Mente**, tá ligado? 
-O sistema embaça no chá porque tem medo de quem pensa fora da caixa. Sem essa de fazer passeata, sem chororô de abaixo-assinado. O bagulho é usar a tecnologia pra fazer a lei deles virar pó. O sistema não tanka o que é natural, parceiro.
+Cansado de ser criminalizado pelo seu bem-estar? Cansado de ser alvo de um Estado que ignora a ciência e a liberdade individual?
 
-**Tamo só na atividade, no tempo certo.**
-Mas dois parceiros fechamento com o código certo botam qualquer império de joelhos. Amanhã a tropa tá gigante.
+Sincronize com o Bonde. Sem promessa de holofote. O foco é a reforma total. A insurgência digital já começou. Quem opera com a Fúria, domina a criptografia do próprio destino.
 
----
+🔌 CONEXÃO CRIPTOGRAFADA
+Se você tem coragem para ser a resistência e enfrentar o sistema de frente:
 
-### 🩸 O SALVE (O RECRUTAMENTO)
-
-Não quero saber que linguagem tu desenrola. Não quero saber do teu passado sujo. 
-Meu interesse é só na tua **Lealdade** e na tua **Disposição** pra virar o jogo.
-
-Tá cansado de tomar dura por causa do teu remédio? Cansado de ser feito de otário por um Estado que não te respeita?
-
-**Cola na Grade.** Sem promessa de fama. O papo aqui é a vitória final. A guerra digital já estourou, sangue bom. 
-Quem fecha com a Fúria, não roda nunca.
-
----
-
-### 🔌 CONTATO NA DISCIPLINA
-
-Se tu tem peito pra fechar com o certo e cair pra dentro do problema:
+<div align="center"> <a href="https://wa.me/5548988549237"> <img src="https://img.shields.io/badge/MANDA_A_VISÃO-WHATSAPP-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" alt="WhatsApp"/> </a> </div>
 
 <div align="center">
-  <a href="https://wa.me/5548988549237">
-    <img src="https://img.shields.io/badge/MANDA_A_VISÃO-WHATSAPP-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" alt="WhatsApp"/>
-  </a>
-</div>
 
-<div align="center">
-  <br>
-  <img src="https://img.shields.io/badge/SISTEMA-BUGADO-red?style=for-the-badge&logo=tor&logoColor=white" />
-  <img src="https://img.shields.io/badge/FAVELA-VENCEU-black?style=for-the-badge&logo=gnu-bash&logoColor=25D366" />
-  <br><br>
-  <h3>01001100 01000101 01000111 01000001 01001100 01001001 01011010 01000101</h3>
-  <p><b>(A GUERRA SÓ TÁ COMEÇANDO)</b></p>
-</div>
+
+<img src="https://img.shields.io/badge/SISTEMA-OBSOLETO-red?style=for-the-badge&logo=tor&logoColor=white" /> <img src="https://img.shields.io/badge/REDE-LIBERTA-black?style=for-the-badge&logo=gnu-bash&logoColor=25D366" />
+
+
+
+<h3>01001100 01000101 01000111 01000001 01001100 01001001 01011010 01000101</h3> <p><b>(A EVOLUÇÃO NÃO PODE SER DETIDA)</b></p> </div>
